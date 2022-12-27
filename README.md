@@ -55,4 +55,10 @@ Emmm...我分享的配置都写上去了,要hook的地方基本都不是很难�
 
 自己去Release那里找🤣
 
+备用下载地址:
+
+https://www.123pan.com/s/nQyRVv-e3c0h
+
+
+
 
